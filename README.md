@@ -1,11 +1,11 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/shadowgast.png" width="450" height="500" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/immortalizedtinted.png" width="500" height="500" /></div>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*ata*](https://uta.atabook.org/)ㅤㅤ‧⊹˚ㅤㅤ[*prns.cc*](https://pronouns.cc/@ahri)ㅤㅤ˚⊹‧ㅤㅤ[*rentry*](https://rentry.co/critrole)ㅤ ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*ata*](https://uta.atabook.org/)ㅤㅤ𓈒⟡・ㅤㅤ[*prns.cc*](https://pronouns.cc/@ahri)ㅤㅤ・⟡𓈒ㅤㅤ[*rentry*](https://rentry.co/rayah)ㅤ ㅤ
 ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
