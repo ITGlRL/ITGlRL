@@ -5,7 +5,10 @@
 ㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*ata*](https://uta.atabook.org/)ㅤㅤ𓈒⟡・ㅤㅤ[*prns.cc*](https://pronouns.cc/@ahri)ㅤㅤ・⟡𓈒ㅤㅤ[*rentry*](https://rentry.co/rayah)ㅤ ㅤ
+<p align="center">
+ <a href= "https://uta.atabook.org/"> ata</a>ㅤㅤ˖ ⊹｡˖ㅤㅤ<a href= "https://pronouns.cc/@crocbug/">prns.cc</a>ㅤㅤ⊹｡⁖ㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
+</p>
+ㅤ
 ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
