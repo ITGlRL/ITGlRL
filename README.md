@@ -6,7 +6,7 @@
 
 
 <p align="center">
- <a href= "https://uta.atabook.org/"> ata</a>ㅤㅤ♡ㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤ♡ㅤㅤ<a href= "https://rentry.co/rayah/">rentry</a> 
+ <a href= "https://set.atabook.org/"> ata</a>ㅤㅤ♡ㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤ♡ㅤㅤ<a href= "https://rentry.co/rayah/">rentry</a> 
 </p>
 ㅤ
 ㅤㅤ
